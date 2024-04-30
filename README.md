@@ -1,4 +1,3 @@
 # AnalizaBesed
 dsvksdnvkldsvlsdlkvbds
-gkj
-novi avtorji
+gkj novoooooo
